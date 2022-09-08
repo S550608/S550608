@@ -8,4 +8,3 @@
 - 📫 How to reach me by gmail - pitchaiah.y.vjws71@gmail.com
 - 😄 Pronouns: I
 - ⚡ Fun fact: Nothing
--->
